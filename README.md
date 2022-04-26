@@ -1,3 +1,3 @@
 # MStoweroz
 
-https://xnum.github.io/MStoweroz
+https://bingchilling11112.github.io/MS_SeedTower/
